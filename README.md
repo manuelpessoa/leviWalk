@@ -1,3 +1,6 @@
 # leviWalk
+This file happens with the "Ambient Vibes" section around 41:00
 
-This files got here through terminal !! ;-)
+
+41:00 - 48:00
+Justin plays the file ambientVibes we improvise with it. 
